@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BOBLucasAvilaTI
-- 👀 I’m interested in ... Aprender sobre programacao
+- 👀 I’m interested in ... Aprender sobre programação
 - 🌱 I’m currently learning ... análise e desenvolvimento de sistemas
 - 💞️ I’m looking to collaborate on ... Tudo que tiver meu alcance
 - 📫 How to reach me ... https://www.facebook.com/lucaspnc
